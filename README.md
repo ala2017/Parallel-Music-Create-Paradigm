@@ -1,3 +1,4 @@
+[![ping-xing-yin-le-chuang-zuo-fan-shi-xuan-yan.jpg](https://i.postimg.cc/hv3NR5Fj/ping-xing-yin-le-chuang-zuo-fan-shi-xuan-yan.jpg)](https://postimg.cc/zHKxnpGZ)
 # Parallel Music Create Paradigm Manifesto (V0.9)
 **平行音乐创作范式宣言 (V0.9)**
 
