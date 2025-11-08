@@ -238,7 +238,7 @@ Spotify： （https://open.spotify.com/artist/1W6EAnKaumWic1swr4rnOP?si=Jct9NZHH
 
 汽水音乐：（搜索“天火义王”）
 
-**神灯智库** （https://docs.qq.com/aio/DUWN2YW9YZE5LRFR1）
+**神灯智库** (https://docs.qq.com/aio/DUWN2YW9YZE5LRFR1)
 
 ---
 ---
